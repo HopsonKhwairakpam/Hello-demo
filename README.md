@@ -7,7 +7,7 @@ Address- Kanto Awang Leikai, Manipur
 <br>
 Nationality- India
 <br>
-Hobby- Listining to music, playing games, learning new things, etc.
+Hobbies- Listining to music, playing games, learning new things, etc.
 <br>
-Favorite Movie- Kalho naho
+Favorite Movies- Kalho naho, Koi milgaya, High and Low, Who am I, etc.
 
